@@ -12,7 +12,7 @@ THIS IS USED ONLY FOR PT PURPOSES / INFO  ˖⋆࿐໋
    - - TAKING INSPO is okay! please just don't copy my ENTIRE skin and shit..
      - colorpicking is also not allowed pls and thank you ;3
      
-  ﹒ 🕸️ ﹒ ！ ﹕ I am involved with TONS of fandoms, but right now my most noteably:   
+  ﹒ 🕸️ ﹒ ！ ﹕ I am involved with TONS of fandoms, but right now my most noteable are:   
       - **BEASTARS**, **OMORI**, **SINJIN DROWNING**, STRANGER THINGS, FNAF, MELANIE MARTINEZ, ALBERT/FLAMINGO, SPIDERMAN !!
       if you have any of these fandoms in common please dont be scared to INTERACT!! I NEED FRIENDS W SIMILAR INTERESTS
       
