@@ -15,7 +15,7 @@ PAWZLED's GITHUB ──★ ˙🧷 ̟ !!
    
    ![image](https://i.imgur.com/jipi0AF.gif) ![blinkiesCafe-ju](https://github.com/user-attachments/assets/6fe49119-472c-4b97-80a9-19c7bcafad36) ![image](https://i.imgur.com/ey9exLR.gif)
 
-   ᭝ ᨳଓ ՟ C + H (**cuddle** + **hide**) IS PERFECTLY FINE depending who im with or what im doing ʚ(｡˃ ᵕ ˂ )ɞ   
+   ᭝ ᨳଓ ՟ C + H (**cuddle** + **hide**) IS PERFECTLY FINE, depending who im with or what im doing ʚ(｡˃ ᵕ ˂ )ɞ   
    i speak both SPANISH (esp) and ENGLISH (eng) so feel free to int !! 
    - - TAKING INSPO is okay! please just don't copy my ENTIRE skin and shit..
      - colorpicking is also not allowed pls and thank you ;3
