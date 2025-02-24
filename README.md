@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/83d74aec-c0ea-4c0f-ad8f-780a87b79993)     
 ![image](https://github.com/user-attachments/assets/f75b2cbd-3dc1-4309-8f4d-80f02f5492e6)    
 PAWZLED's GITHUB ──★ ˙🧷 ̟ !!  
-**THIS IS USED ONLY FOR PT PURPOSES / INFO**  ˖⋆࿐໋    
+**THIS IS USED ONLY FOR PT PURPOSES / INFO!**  ˖⋆࿐໋    
 ![undefined - Imgur](https://github.com/user-attachments/assets/6e01c5a1-a80e-4fdb-bff6-0b29bcac8c2e)    ![blinkiesCafe-dt](https://github.com/user-attachments/assets/423df3ec-39c6-4d20-91dc-55034a7fc5ff)![image](https://i.imgur.com/SqpoYud.gif)     
    you can call me wes / weston or call me as the character i am cosplaying !!     
   - I go by STRICTLY he/him prns dont use anything else thank yew >.<      
