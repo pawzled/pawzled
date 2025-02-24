@@ -44,8 +44,8 @@ __**BLINKIES ASSOCIATED W/ ME**__ : :
 ![image](https://64.media.tumblr.com/3711e8e13d106e8486d8d2bbff272c9d/40d6c983f54b2d4a-e9/s100x200/0f842d7f3ca991a8531728c407f93153673b5abe.gifv)![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d19e70a3-e416-4a17-9e76-fc9891f08420/d27nu3c-aa1c869e-1429-48b7-8dc9-6aa25ff2b404.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2QxOWU3MGEzLWU0MTYtNGExNy05ZTc2LWZjOTg5MWYwODQyMFwvZDI3bnUzYy1hYTFjODY5ZS0xNDI5LTQ4YjctOGRjOS02YWEyNWZmMmI0MDQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.bhPBsOH1KYI-4HQaespMj9oI2DsP6rsoQ5OKweARQIQ)![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1ee37a14-80b1-479d-a8b7-5a9661b86eae/d6wlu7f-78c1c1c4-72be-48df-8ee0-825802865408.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFlZTM3YTE0LTgwYjEtNDc5ZC1hOGI3LTVhOTY2MWI4NmVhZVwvZDZ3bHU3Zi03OGMxYzFjNC03MmJlLTQ4ZGYtOGVlMC04MjU4MDI4NjU0MDguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ZasJ2SYzVs86MBjDfwK49CGLw9OYtiQPmRslfltw0ec)![image](https://64.media.tumblr.com/2117f192978bcd5c9352c704f2bc6091/d1b13d10a3b57c68-f3/s100x200/5b70790e25394852d0ed4105a61124046ca25399.gifv)![image](https://github.com/user-attachments/assets/e6748ffe-27e1-41e1-b848-6b777ed123e8)![image](https://64.media.tumblr.com/7731d2c665a7b2fdcba7c2446569a149/3347c16333dd2347-3f/s100x200/5c70302dde82621127074656cc7e1b1af4e22e61.gifv)![image](https://64.media.tumblr.com/0fa4846c9112719ceafbefab65336a7d/c80e07d9272333a9-b3/s100x200/7b1dd3032804b47597bde8282de850a89681a466.gifv)![image](https://github.com/user-attachments/assets/875ae014-761d-4d35-9d4e-236fff948e70)   
 ![image](https://github.com/user-attachments/assets/34ead36a-ce34-4d43-b51f-ea8d8d2d92eb)
 
-
-
+if you want any of my other socials, feel free to whisper me!! 
+it might depend on the social though, bim ^_<
 
 
 
